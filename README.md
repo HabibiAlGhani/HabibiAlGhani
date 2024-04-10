@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on YouTube.
 - 📫 How to reach me https://www.instagram.com/khwajasabxd1?igsh=MXpsZGgxcjlvejNv
 - 😄 Pronouns: He/HIM
-- ⚡ Fun fact: I love teasing cute aunties and i am a lovely and fun.
+- ⚡ Fun fact: I love teasing cute aunties and i am a lovely and fun person.
 
 <!---
 HabibiAlGhani/HabibiAlGhani is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
