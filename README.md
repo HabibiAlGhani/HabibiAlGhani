@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @HabibiAlGhani
 - 👀 I’m interested in cycling and racing 🏎️🐎.
-- 🌱 I’m currently learning Russian.
+- 🌱 I’m currently Lost in a beautiful garden of flowers and trees of fruits 
 - 💞️ I’m looking to collaborate on YouTube.
 - 📫 How to reach me https://www.instagram.com/khwajasabxd1?igsh=MXpsZGgxcjlvejNv
 - 😄 Pronouns: He/HIM
